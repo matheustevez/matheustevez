@@ -1,1 +1,1 @@
-me chamo matheus, atualmente tento aprender linguagem de programação no geral (mesmo falhando miseravelmente)
+me chamo matheus, atualmente tento aprender linguage de programação no geral (mesmo falhando miseravelmente)
